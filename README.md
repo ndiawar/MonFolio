@@ -4,7 +4,7 @@
 
 ## 📄 Mon CV
 
-🔗 **[Télécharger mon CV en PDF](https://drive.google.com/drive/folders/1LOxpIg5HZeXx865Lots4WSHIASKN0gzN?usp=drive_link)** *(Remplace ce lien par le tien)*
+🔗 **[Télécharger mon CV en PDF](https://drive.google.com/drive/folders/1LOxpIg5HZeXx865Lots4WSHIASKN0gzN?usp=drive_link)**
 
 ## 💡 À propos de moi
 
